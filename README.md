@@ -1,2 +1,2 @@
-# Jones
-Persona
+# About me
+
